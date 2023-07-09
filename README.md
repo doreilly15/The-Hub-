@@ -1,3 +1,3 @@
 # The-Hub-
 Quality clothing for every occasion
-Quick and easy checkout 
+New and improved products everyday 
